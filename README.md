@@ -1,0 +1,2 @@
+# Ciencia_y_Filosofia_issn-2594-2204
+Objetivo: Promover objetos digitales (dictaminados) de acceso abierto que vinculen el conocimiento, las prácticas docentes y de investigación con perspectiva multidisciplinaria, atendiendo las necesidades del subsistema estatal del Estado de México CECyTEM para validar, actualizar y estandarizar la producción investigativa y formación e impulso de vocaciones científicas y humanistas  en lectores jóvenes y ciudadanos. 
